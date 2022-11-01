@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @evanmathew2012
+- 👀 I’m interested in Robotics, Coding, and a bit of Mechatronics
+- 🌱 I’m currently learning (literly all of above)
+- 📫 My contact: Emails: evanmathew12@gmail.com, jamindustris@gmail.com
